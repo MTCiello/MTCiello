@@ -6,7 +6,6 @@
 - 😄 Aceito toda ajuda possivel em meu aprendizado;
 - 🔎 Procuro grupo de estudos para troca de informações e aperfeiçoamento pessoal;
 
-
 ##
 
 <div align="center">
